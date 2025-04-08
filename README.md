@@ -1,6 +1,7 @@
 ![abn](https://github.com/user-attachments/assets/0546a37e-bdb4-46c0-a5b8-183611ba1685)
-# 🚫 FALSO
-! | FAKE! — Lista de sites falsos da FitGirl | Fake FitGirl Sites List
+
+# 🚫 FALSO | FAKE! 
+— Lista de sites falsos da FitGirl | Fake FitGirl Sites List
 
 
 > ⚠️ **ATENÇÃO / WARNING:**  
