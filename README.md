@@ -27,3 +27,4 @@ fitgirl-repacks.fun
 fitgirl-repacks.website
 fitgirlrepacks.co
 fitgirlrepacks.games
+fitgirl-repack.com
